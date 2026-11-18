@@ -4,6 +4,8 @@
 
 ![](https://i.postimg.cc/VNJHsqc3/Untitled855-20261109103219-2.png)
 
+ <sub> did system ⠀ they/he/lune </sub>
+ <br>
  <sub> c*h encouraged ⠀ w2i ⠀ read links byi </sub>
 <br>
 <sub> [©](https://x.com/pikorulli) </sub>
