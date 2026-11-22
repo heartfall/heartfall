@@ -1,8 +1,8 @@
 <div align='center'>
 
-![](https://komarev.com/ghpvc/?username=heartfall&label=wolves&=trueey&color=93CF86)
+![](https://komarev.com/ghpvc/?username=heartfall&label=wolves&=trueey&color=C21D1C)
 
-![](https://i.postimg.cc/VNJHsqc3/Untitled855-20261109103219-2.png)
+![](https://i.postimg.cc/3xdnckYn/Untitled858-20261118112204-3.png)
 
  <sub> did system ⠀ <16 iwc </sub>
  <br>
