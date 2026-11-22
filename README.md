@@ -9,3 +9,14 @@
  <sub> c*h encouraged ⠀ w2i ⠀ read links byi </sub>
 <br>
 <sub> [©](https://x.com/pikorulli) </sub>
+
+<br>
+<br>
+
+<details>
+  <summary></summary>
+ 
+![](https://i.postimg.cc/CLsht2P5/Untitled865-20261122164907.png)
+<br>
+i love boogeybeans too. gribeans, jizzie, smallethubs and poly bad boys have my heart i care them  a lot. i do not ship the actual creators themselves (with the exception of joel and lizzie) don't come at me or i'll be REALLY ANNOYED!! it's all joel pairings because i want him passed around like a blunt and i'm an introject of him + i'm greedy. sorry. Sorry.
+  </details>
