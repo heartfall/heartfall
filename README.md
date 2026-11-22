@@ -14,7 +14,7 @@
 <br>
 
 <details>
-  <summary></summary>
+  <summary>ᴛʀᴀғғɪᴄsʜɪᴘᴘɪɴɢ</summary>
  
 ![](https://i.postimg.cc/CLsht2P5/Untitled865-20261122164907.png)
 <br>
