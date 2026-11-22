@@ -4,7 +4,7 @@
 
 ![](https://i.postimg.cc/VNJHsqc3/Untitled855-20261109103219-2.png)
 
- <sub> did system ⠀ <14 dnf⠀ <16 iwc </sub>
+ <sub> did system ⠀ <16 iwc </sub>
  <br>
  <sub> c*h encouraged ⠀ w2i ⠀ read links byi </sub>
 <br>
