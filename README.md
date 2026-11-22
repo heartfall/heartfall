@@ -8,7 +8,7 @@
  <br>
  <sub> c*h encouraged ⠀ w2i ⠀ read links byi </sub>
 <br>
-<sub> [©](https://x.com/pikorulli) </sub>
+<sub> [©](https://x.com/cloudyfairss) </sub>
 
 <br>
 <details>
